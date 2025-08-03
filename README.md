@@ -1,1 +1,2 @@
-# Report_TTDN[Uploading BaoAnh_BaoCaoTTDN (1).docx…]()
+# Report_TTDN
+file:///C:/Users/DELL/Documents/Zalo%20Received%20Files/BaoAnh_BaoCaoTTDN.pdf
